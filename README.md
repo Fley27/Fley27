@@ -1,4 +1,4 @@
-Hi 👋 My name is Fenley Menelas
+Hi 👋 My name is Fenley Jude Viky Menelas (Fley)
 ===============================
 
 Full-stack web developer
